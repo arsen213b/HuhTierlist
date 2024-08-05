@@ -1,1 +1,1 @@
-# HuhTierlist
+# Странный Tierlist
